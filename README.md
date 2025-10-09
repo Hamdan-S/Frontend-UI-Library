@@ -1,1 +1,1 @@
-Theres pure elegance in creating things from scratch, same applies to User Interfaces. So throw away all your AI tools and learn to create using your mind. Let's revive uniqueness on the internet and step away from extreme simplicity or in other words "Corporate Minimalism".
+I take major inspiration from Windows Vista, Apple, Skeumorphism.
